@@ -20,6 +20,8 @@
 
 Отже, для відповіді на питання щодо легалізації зброї та які з цього будуть наслідки, був проведений експеримент щодо пошуку залежності між цим фактором та злочинністю в країні.
 
-
+![image](https://github.com/user-attachments/assets/9add5e7e-d867-44a2-a06c-3d06ccc50cfa)
+![image](https://github.com/user-attachments/assets/026cbb6d-9b21-4175-b84c-194259099d95)
+![image](https://github.com/user-attachments/assets/83476785-9d49-4472-8c94-4462f9007980)
 
 
